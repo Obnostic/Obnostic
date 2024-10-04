@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...sound warping and office help
 - 📫 How to reach me ... unklfoddy@gmail.com
-- 😄 Pronouns: ...Steve Slack. Unkle Foddy
+- 😄 Pronouns: ... It/That/What? (according to the Commonwealth Of Virginia) ..... Also, Steve Slack. Unkle Foddy
 - ⚡ Fun fact: ... I did fun music, sometimes with bands, in the 80's
 
 
